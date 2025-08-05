@@ -3,7 +3,10 @@ Name - Armaanjit Singh
 <br>
 Father's name - Satvinder Singh 
 <br>
-Branch - Civil Engineering 
+Branch - Civil Engineering
+<br>
+Registration no - 25102486
+
 
 
 
