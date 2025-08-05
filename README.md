@@ -13,7 +13,8 @@ Email - armaanjitsingh0@gmail.com
 <br>
 Photograph
 <br>
-images/
+
+
 
 
 
