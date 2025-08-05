@@ -2,7 +2,7 @@
 Name - Armaanjit Singh
 <br>
 Branch - Civil Engineering 
-Father’s name - Satvinder Singh
+Father’s name - Satvinder Singh 
 <br>
 
 
