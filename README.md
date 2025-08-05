@@ -8,6 +8,9 @@ Branch - Civil Engineering
 Registration no - 25102486
 <br>
 Mobile no(whatsapp) - 8837605032
+<br>
+Email - armaanjitsingh0@gmail.com
+
 
 
 
