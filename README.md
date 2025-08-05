@@ -14,6 +14,8 @@ Email - armaanjitsingh0@gmail.com
 Photograph
 <br>
 ![Image](https://github.com/user-attachments/assets/f56e63f6-ebbf-4a47-a3dc-5e659ca51807)
+<br>
+##Day1(30 July)
 
 
 
