@@ -21,6 +21,8 @@ It was the first day of Induction program and I was very much happy because I be
 <br>
 
 ## Day2 (31 July) 
+The second day is off for us me and my roommate had decided to explore the college.We noticed that the college is full of greenery which is good for environment and every basic human needs is provided to students as well as staff which is good and necessary we explore the college almost all day and we get tired so we went to sleep early.
+
 
 
 
