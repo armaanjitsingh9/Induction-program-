@@ -30,7 +30,11 @@ Then after break Dr Arvind Dhingra came who taught us  how to make your personal
 After the sir lecture ended we had a small break,then after the break we had a small proficiency test of English and Maths.
 <br>
 
-### Day4 (4August)
+## Day4 (4August)
+It was the 4th day of our Induction.Our seniors came to the stage to tell us about the CAUSMIC Club. This club's main purpose is to organise Fests and Functions. They also showed their work on instagram.
+After some time Dr Priya Darshni arrived. It was Mam's second lecture and this time mam told us about the difference between excitement and happiness.
+After that we had a small lunch break and after the lunch we had two classes one class is of P2P and other is of Physics.In P2P classes our seniors came to tell us about the basics of C++ language and in Physics class our Physics lecturer tell us about the Physics syllabus and she had also taken our Introduction and that all is what happened on 4th day of Induction program.
+
 
 
 
