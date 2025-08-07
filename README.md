@@ -45,6 +45,8 @@ On the sixth day of the Induction program we are having three expert lectures. T
 <br>
 
 ## Day7 (7August)
+On the seventh day of the Induction program I had a mathematics class which was taught by Prof Sukhminder Singh. The class was interesting because Sir told us about some apps in which we can check graphs and visualize 3d geometry.After that I went for Id card formation and after that we had a break then we have a lecture by Dr Lakhvir Singh Khana who is Incharge of “CML”.In this lecture they told us why CML is important for students especially for core branches.They also told us to do courses from “NPTEL” because it will help us in future.After the sir lecture ended we had a beautiful Kirtan by NSS team and our next lecture is of Dr Jasvir Singh Grewal Incharge of “NSS”.They show us the clip of midway island and in that clip we can see the birds dying because they are having plastic in their stomach.This will encourage many students to join NSS because its main motive is to protect environment later the NSS team played games with us which makes everyone happy and that’s how my day ended.
+
 
 
 
