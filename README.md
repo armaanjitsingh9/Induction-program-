@@ -36,7 +36,7 @@ After some time Dr Priya Darshni arrived. It was Mam's second lecture and this t
 After that we had a small lunch break and after the lunch we had two classes one class is of P2P and other is of Physics.In P2P classes our seniors came to tell us about the basics of C++ language and in Physics class our Physics lecturer tell us about the Physics syllabus and she had also taken our Introduction and that all is what happened on 4th day of Induction program.
 <br)
 
-## Day5 (6August)
+## Day5 (5August)
 It was the fifth day of the Induction program and we are having an expert lecture by Mrs Shaffy Makkar on “Millets Super Food”.In this lecture the expert tell us about the importance of millets in our diet and how after the Green Revolution we became completely dependent on wheat and rice.They suggest us to try millets at least one time in a week.They also told us that how it can cure diseases like diabetes,high blood pressure etc.This is a good lecture for all the students because 99 percent of them didn’t know about this.
 <br>
 
