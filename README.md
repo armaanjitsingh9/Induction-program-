@@ -27,6 +27,8 @@ The second day is off for us me and my roommate had decided to explore the colle
 ## Day3 (1August)
 It was the second day of the induction program and Dr Priya Darshni came who taught us about ‘’ Universal Human Values ‘’ her message to us is how to live happily in continuity.
 Then after break Dr Arvind Dhingra came who taught us  how to make your personality strong and they also introduced us to organizations related to our specific engineering branches .
+After the sir lecture ended we had a small break,then after the break we had a small proficiency test of English and Maths.
+
 
 
 
