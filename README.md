@@ -41,7 +41,7 @@ It was the fifth day of the Induction program and we are having an expert lectur
 <br>
 
 ## Day6 (6August)
-On the sixth day of the Induction program we are having three expert lectures. The first lecture is of Dr Parminder Singh on “Student welfare”. In this lecture they told us about our college classes,campus and the facilities which we will get from the college.The second lecture is from Mr Manpreet Singh on “Fitness for Engineers”.In this lecture they told us about the importance of fitness and why it became necessary for everyone.The last lecture is of Brigadier P.S. Cheema Sir. This lecture personally was my favourite because I want to join the armed forces and they give us some tips on self belief and discipline which will really help.After the lectures we had a small break and after the break we had a P2P lecture which has been taken by our seniors and in this class we continue our learning of C++ programming basics.
+On the sixth day of the Induction program we are having three expert lectures. The first lecture is of Dr Parminder Singh on “Student welfare”. In this lecture they told us about our college classes,campus and the facilities which we will get from the college.The second lecture is from Mr Manpreet Singh on “Fitness for Engineers”.In this lecture they told us about the importance of fitness and why it became necessary for everyone.The last lecture is of Brigadier P.S. Cheema Sir. This lecture personally was my favourite because I want to join the armed forces and they give us some tips on self belief and discipline which will really help.After the lectures we had a small break and after the break we had a P2P lecture which was taken by our seniors and in this class we continued our learning of C++ programming basics.
 
 
 
